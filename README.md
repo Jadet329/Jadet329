@@ -4,7 +4,7 @@
 - I'm a student at Options Secondary taking classes at the EPIC Campus
 - I’m currently learning pi's and python
 - Pronouns: She/They
-- ⚡ Fun fact: piranahs are fairly friendly are ussualy too scared to go near you, they only act the way they're portrayed in movies because humans starved them.
+- Fun fact: piranahs are fairly friendly are ussualy too scared to go near you, they only act the way they're portrayed in movies because humans starved them.
 
 ⠀⠀⠀⠀───────▄█──────────█─────────█▄───────
 ⠀⠀⠀⠀─────▐██──────▄█──███──█▄─────██▌─────
